@@ -4,7 +4,7 @@
 
 Meu nome é Lucas Dantas e sou completamente apaixonado por tecnologia, comecando agora nessa area! 😎
 
-Atualmente ajudo a transformar a vida das pessoas na Trybe, uma Startup que está revolucionando a educação e formando pessoas para profissões do futuro e também através de vídeos no meu canal do YouTube.
+Atualmente estudando na Trybe!
 
 <br>
 
